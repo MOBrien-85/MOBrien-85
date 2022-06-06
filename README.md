@@ -1,5 +1,5 @@
 # Michael O'Brien
-I am a 2x Cancer-survivor, family man, and multi-talented creator.
+I am a 2x Cancer-survivor, family man, and musician/cartoonist/writer.
 
 I once hit a home run at a tournament in Cooperstown, NY and that ball was on display in the Baseball Hall of Fame.
 
